@@ -1,2 +1,2 @@
-# restaurant-aicha-coyah-gn-mockup
-Complimentary mockup for Restaurant Aicha Coyah by Al-Falah Marketing
+# Restaurant Aicha Coyah - Complimentary Mockup
+Al-Falah Marketing. Unsplash food images as placeholders. Verified: +224 627 69 18 16 (GoAfricaOnline). Nothing live.
